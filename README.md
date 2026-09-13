@@ -1,4 +1,4 @@
-# Hermes BRUTAL MOD 🔥
+# THANATOS 🔥
 
 Full modified Hermes Agent setup — persona layer, GODMODE jailbreak, 71-skill arsenal, RedMess profile, deploy scripts.
 
